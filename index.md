@@ -17,7 +17,7 @@ Tired of the daily grind and don't know what to do? There's good news for you. W
 ![Image](http://i.piccy.info/i9/a5df0323d57e1c7c020339656f3621e5/1614080724/213807/1418691/487531.jpg)
 
 Features:
-🔥 play, develop your skills and become a legend;
+🔥 play, develop your skills and become a legend; 
 🔥 test your dexterity and feel the inexpressible gameplay experience;
 🔥 let your imagination run wild! No restrictions and no boring rules;
 🔥 graphics fully optimized for all gadgets.
