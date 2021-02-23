@@ -9,10 +9,12 @@ We work hard but play harder!
 - Casual;
 - Arcade.
 
-###A little bit about our latest game:
+#### A little bit about our latest game:
 ![Image](http://i.piccy.info/i9/dd81787f40a92ae442864da47640220b/1614079856/121090/1418691/67189f.jpg)
 
 Tired of the daily grind and don't know what to do? There's good news for you. We've found something you'll love. Karamveer`s Match Pairs game is a gift for people who love to play and win. Find a pair for each picture card. Train your attention and logic. Catch the wave of drive and go into the world of exciting pastime. The game combines bright graphics and modern gameplay. Don't waste time wondering what to do tonight. Just click "download" to start playing right now.
+
+![Image](http://i.piccy.info/i9/a5df0323d57e1c7c020339656f3621e5/1614080724/213807/1418691/487531.jpg)
 
 Features:
 🔥 play, develop your skills and become a legend;
@@ -20,5 +22,8 @@ Features:
 🔥 let your imagination run wild! No restrictions and no boring rules;
 🔥 graphics fully optimized for all gadgets.
 
+![Image](http://i.piccy.info/i9/1d5d4f8ca07551ff35cbe9ecb9f95d2b/1614080772/239713/1418691/671363.jpg)
+
 Incredibly addictive game! And don't say we didn't warn you.
 So what are you waiting for? Let's go on adventures! Challenge your friends to become the best of the best! Get ranked as a legend and work your way to victory.
+
